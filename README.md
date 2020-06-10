@@ -1,0 +1,1 @@
+# Diez-EQUIS-S.A
